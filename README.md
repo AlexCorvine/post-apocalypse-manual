@@ -1,2 +1,2 @@
 # post-apocalypse-manual
-Some thought on  how to build the world after post apocalyspsis (inspired by the book The Earch Abides :) )
+Some reflections on how to rebuild the world after a post-apocalyptic event — inspired by Earth Abides.
